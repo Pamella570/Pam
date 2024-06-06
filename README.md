@@ -5,5 +5,6 @@
 * _Ultilizo este espaço para minha organização e compartilhamento de projetos desenvolvidos_
   
   ![](https://media.tenor.com/Qmz69LVs52MAAAAM/moon-sailor-moon.gif)
+  
 
 > Obrigada por vizualizarem meu perfil
